@@ -1,1 +1,0 @@
-# globalmindsexchange.github.io
